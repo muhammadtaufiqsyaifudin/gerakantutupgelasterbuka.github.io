@@ -1,0 +1,1 @@
+# gerakan_tutup_gelas_terbuka
